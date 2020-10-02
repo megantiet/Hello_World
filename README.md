@@ -37,3 +37,29 @@ V (Kim Taehyung) is part of the vocal line and the dance line. V began his musci
 
 ![Jungkook:Map of the Soul 7 JacketShoot](https://ibighit.com/bts/images/bts/discography/map_of_the_soul-7/lcme4aE8Pdh2GLUKWa3vpXqE.jpg)
 Jungkook (Jeon Jungkook) is the maknae (youngest), a part of the vocal line, and a main dancer. When Jungkook was 13 he auditioned for talent show, SuperstarK.  Although he was not selected, he was reached out 7 entertainment companies but ultimately chose BigHit. With this diverse vocal range of high and low notes, his voice fit many genres from EDM to ballads. He has released the solo song [Still With You (2020)](https://soundcloud.com/bangtan/thankyouarmy2020). 
+
+### **Achievements**
+*Music Awards*
+| Organization | Year     | Acheivement |
+| -----------| ----------- |----------- |
+| American Music Awards     | 2018     |Favorite Social Artist     |
+| American Music Awards     | 2019     |Favorite Duo or Group Pop/Rock     |
+| American Music Awards     | 2019     |Favorite Social Artist     |
+| American Music Awards     | 2019     |Tour of the Year    |
+| Billboard Music Awards    | 2017     |Top Social Artist   |
+| Billboard Music Awards    | 2018     |Top Social Artist   |
+| Billboard Music Awards    | 2019     |Top Social Artist   |
+| Billboard Music Awards    | 2019     |Top Duo/Group  |
+| Billboard Music Awards    | 2020     |Top Social Artist   |
+| Billboard Music Awards    | 2020     |Top Duo/Group  |
+| Billboard Music Awards    | 2019     |Favorite Social Artist     |
+
+*Cultural Honors*
+| Country or Organization | Year     | Honor |
+| -----------| ----------- |----------- |
+| South Korea  | 2016     |Minister of Culture, Sports and Tourism Commendation    |
+| South Korea  | 2017     |Presidential Commendation   |
+| South Korea  | 2018     |[Hwagwan Order of Cultural Merit (5th class)](https://en.wikipedia.org/wiki/Order_of_Cultural_Merit_(South_Korea)#Hwagwan_(Flower_Crown),_5th_Class)|
+
+
+
