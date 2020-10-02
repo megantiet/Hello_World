@@ -54,6 +54,7 @@ Jungkook (Jeon Jungkook) is the maknae (youngest), a part of the vocal line, and
 | Billboard Music Awards    | 2020     |Top Duo/Group  |
 | Billboard Music Awards    | 2019     |Favorite Social Artist     |
 
+
 *Cultural Honors*
 | Country or Organization | Year     | Honor |
 | -----------| ----------- |----------- |
@@ -61,5 +62,8 @@ Jungkook (Jeon Jungkook) is the maknae (youngest), a part of the vocal line, and
 | South Korea  | 2017     |Presidential Commendation   |
 | South Korea  | 2018     |[Hwagwan Order of Cultural Merit (5th class)](https://en.wikipedia.org/wiki/Order_of_Cultural_Merit_(South_Korea)#Hwagwan_(Flower_Crown),_5th_Class)|
 
+![BTS UN Speech News](https://i.ytimg.com/vi/kWMzL20sImg/maxresdefault.jpg)
+
+[The full speech that RM of BTS gave at the United Nations](https://www.youtube.com/watch?v=ZhJ-LAQ6e_Y)
 
 
