@@ -10,7 +10,7 @@
 ### **Who is BTS?**
 ![BTS Map of the Soul 7 Jacket Shoot](https://ibighit.com/bts/images/bts/profile/profile-kv-m.png)
 
-BTS, also know as Bangtan Sonyeondan, is a 7-member Korean boy band that debuted on June 13th, 2013 under BigHit. To this day, they have released 4 Korean albums and 4 Japanese albums. Their 2018-2019 Love Yourself World Tour was attended by 1.02 million fans, grossing $196.4 million.
+BTS, also know as Bangtan Sonyeondan, is a 7-member Korean boy band that debuted on June 13th, 2013 under BigHit. To this day, they have released 4 Korean albums and 4 Japanese albums. Their 2018-2019 Love Yourself World Tour was attended by 1.02 million fans, grossing $196.4 million. Their most recent single released, [Dynamite](https://www.youtube.com/watch?v=gdZLi9oWNZg) is their first song sung in all English which came out on August 20, 2020.
 
 ### **Members**
 ![RM:Map of the Soul 7 JacketShoot](https://ibighit.com/bts/images/bts/discography/map_of_the_soul-7/vyJ6tAUrwYZJVQ8F83ja4IXd.jpg)
@@ -66,4 +66,18 @@ Jungkook (Jeon Jungkook) is the maknae (youngest), a part of the vocal line, and
 
 [The full speech that RM of BTS gave at the United Nations](https://www.youtube.com/watch?v=ZhJ-LAQ6e_Y)
 
+### **My Favorite Songs**
+*Songs*
+- [Mikrokosmos (2019)](https://www.youtube.com/watch?v=oYpUZjxJOVg)
+- [Run (2015)](https://www.youtube.com/watch?v=wKysONrSmew)
+- [Black Swan (2020)](https://www.youtube.com/watch?v=0lapF4DQPKQ)
+- [Blood, Sweat, and Tears (2016)](https://www.youtube.com/watch?v=hmE9f-TEutc)
 
+*Full Performances*
+![Tiny Desk Image](https://media.npr.org/assets/img/2020/09/17/bts-copy_wide-84787b20b92b9904691e892af975c8d9c87e092e.jpg)
+[BTS: Tiny Desk (Home) Concert](https://www.youtube.com/watch?v=gFYAXsa7pe8)
+
+### **My Favorite Interviews**
+![Carpool](https://thumbnails.cbsig.net/CBS_Production_Entertainment_VMS/2020/02/26/1702566467767/CORDEN_0739_CLIP1_CIAN_BTS_CARPOOL_173011_1920x1080.jpg)
+[BTS Carpool Karaoke](https://www.youtube.com/watch?v=T4x7sDevVTY)
+[Flinch w/BTS](https://www.youtube.com/watch?v=jLM2ibaRbrk)
