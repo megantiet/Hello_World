@@ -7,14 +7,15 @@
 4. My Favorite Songs
 5. My Favorite Interviews
 
-### Who is BTS?
+### **Who is BTS?**
 ![BTS Map of the Soul 7 Jacket Shoot](https://ibighit.com/bts/images/bts/profile/profile-kv-m.png)
 
-BTS, also know as Bangtan Sonyeondan, is a 7-member Korean boy band that debuted on June 13th, 2013 under BigHit. 
+BTS, also know as Bangtan Sonyeondan, is a 7-member Korean boy band that debuted on June 13th, 2013 under BigHit. To this day, they have released 4 Korean albums and 4 Japanese albums. Their 2018-2019 Love Yourself World Tour was attended by 1.02 million fans, grossing $196.4 million.
 
-### Members
+### **Members**
 ![RM:Map of the Soul 7 JacketShoot](https://ibighit.com/bts/images/bts/discography/map_of_the_soul-7/vyJ6tAUrwYZJVQ8F83ja4IXd.jpg)
 
+#### RM
 RM (Kim Namjoon) is the leader of BTS and is part of the rapline. RM was previously known as "Rap Monster" but changed his stage name as it did not represent him anymore. He is the only member fluent in English and is often the spokesperson for BTS internationally. RM started out as an underground rapper in high school and was the first member recruited by BigHit. He excels with his poetic lyrics using metaphors, oxymorons, and bilingual puns that need to be listened to multiple times before you can understand them. 
 He has released two mixtapes, [RM (2015)](https://www.youtube.com/watch?v=9glZVktVKVw) and [mono. (2018)](https://www.youtube.com/watch?v=hUb1_zjRSYs).
 
